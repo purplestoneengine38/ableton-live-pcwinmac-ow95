@@ -1,4 +1,4 @@
-# 
+# New Ableton Live extensions for Mac OS | Secure Ableton Live extensions for PC Windows. Featuring recording and sidechain-compression — optimized for maximum performance on every platform.
 
 
 
